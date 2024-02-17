@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Royal Impact:
 Royal Impact is the Royal Impact is the social innovation platform of the kingdom of the Royal Bafokeng Nation.social innovation platform of the kingdom of the Royal Bafokeng Nation.
 
 
